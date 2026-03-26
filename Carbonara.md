@@ -32,4 +32,4 @@ Verser le mélange dans un saladier et incorporez la préparation des jaunes d'�
 
 # Étape 9
 
-Ajouter la pancetta et deux pincées de poivre. Servez.
+Ajouter la pancetta et deux pincées de poivre. Servez. Mangez. Buvez.

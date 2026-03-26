@@ -16,7 +16,7 @@ Arrosez de 2 cuillères à soupe d'huile d'olive, saupoudrez d'origan et de quel
 
 # Étape 5
 
-Enfin, coupez la mozzarella en tranches moyennes pour en recouvrir la pizza; vous pouvez décorer avec quelques tranches de citron.
+Enfin, coupez la mozzarella en tranches moyennes pour en recouvrir la pizza.
 
 # Étape 6
 Enfournez dans un four préchauffé à 180°C (th 6).

@@ -29,3 +29,7 @@ Dans le plat à gratin, étaler une couche de pommes de terre aux lardons, dispo
 # Étape 8
 
 Enfourner pour environ 20 minutes de cuisson.
+
+# Étape 9
+
+Dégustez !!

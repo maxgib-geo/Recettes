@@ -16,11 +16,11 @@ Quand l’eau dans la casserole commence à bouillir mettez vos pâtes.
 
 # Étape 5
 
-Prendre deux cuillères à soupe d'eau de cuisson des pâtes, les verser dans le jaunes d'œufs puis remuer sobrement et avec allégresse.
+Prendre deux cuillères à soupe d'eau de cuisson des pâtes, les verser dans le jaunes d'œufs puis remuer.
 
 # Étape 6
 
-Réservez la pancetta et laissez la poêle au chaud, a environ 9999999°C
+Réservez la pancetta et laissez la poêle au chaud.
 
 # Étape 7
 
@@ -29,10 +29,6 @@ Une fois la cuisson des pâtes al dente, les égoutter sommairement et les mettr
 # Étape 8
 
 Verser le mélange dans un saladier et incorporez la préparation des jaunes d'œufs.
-
-# Etape 8a 
-
-Versez un sceau de peintuer sur les pâtes
 
 # Étape 9
 
